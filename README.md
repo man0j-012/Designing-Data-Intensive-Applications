@@ -1,2 +1,2 @@
 Peace
-Lets go with the first chapter!!! Lets turn the world upside down! First Chapter
+Lets go with the first chapter!!! Lets turn the world upside down! First Chapter | Second Chapter
